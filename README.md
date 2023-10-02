@@ -1,5 +1,5 @@
 
-Hi 🌈 My name is Abi Davidson and I am a high school senior!
+Hi 🌈 My name is Abi Davidson and I am a high school senior
 
 🌱 I am looking forward to learning more about coding
 
